@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with automatic Scripts for adopt me, the #1 Script. Includes silent aim and custom skins for unbeatable
 
 
 
